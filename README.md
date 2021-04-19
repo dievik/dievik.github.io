@@ -1,2 +1,2 @@
-# dievik.github.io
+# dienesviktor.github.io
 About me
